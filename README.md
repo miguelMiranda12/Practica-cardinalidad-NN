@@ -1,0 +1,1 @@
+# miguelMiranda12-Practica-cardinalidad-NN
